@@ -1,4 +1,4 @@
-# felipe Sousa 
+# conectado
 # PROGRAMADOR
  
 membro da comunidade GITHUB
@@ -10,8 +10,8 @@ ______________________________________
 
 {𝙲𝙾𝙽𝚃𝙰𝚂 𝙲𝚁𝙸𝙿𝚃𝙾𝙶𝚁𝙰𝙵𝙰𝙳𝙰𝚂}
 
-https://instagram.com/sub_ghostt/
+https://instagram.com/bruno_0_1_1/
 
-https://instagram.com/_pvdburguesaa__/
+https://instagram.com/_pvdmainha__/
 
   
